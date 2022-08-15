@@ -3,4 +3,4 @@
 currently working on: **osu!wiki** (EN🡒RU)<br>
 currently learning: **HTML**, **CSS**, **JavaScript**
 
-contact me: **semaphore#7895** or [**Telegram**](https://t.me/semaphore184)
+contact me: **semaphore#7895** or [**Telegram**](https://t.me/semaphore184). my e-mail is also linked in my bio.
