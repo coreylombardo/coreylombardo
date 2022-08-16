@@ -1,6 +1,6 @@
 `l10n` enthusiast (EN🡘RU)
 
-currently working on: **osu!wiki** (EN🡒RU)<br>
-currently learning: **HTML**, **CSS**, **JavaScript**
+Currently working on: **osu!wiki** (EN🡒RU)<br>
+Currently learning: **HTML**, **CSS**, **JavaScript**
 
-contact me: **semaphore#7895** or [**Telegram**](https://t.me/semaphore184). my e-mail is also linked in my bio.
+Contact me: **semaphore#7895** or [**Telegram**](https://t.me/semaphore184). My e-mail is also linked in my bio.
